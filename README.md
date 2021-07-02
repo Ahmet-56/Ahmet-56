@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @Ahmet-56
+- 👀 I’m interested in crypto currencies.
+- 🌱 I’m currently learning  airdops and ıco listing crypto coins and tokens ...
+- 💞️ I’m looking to collaborate on crypto ...
+- 📫 How to reach me telegram @Ahmet_56 ...
+
+<!---
+Ahmet-56/Ahmet-56 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
